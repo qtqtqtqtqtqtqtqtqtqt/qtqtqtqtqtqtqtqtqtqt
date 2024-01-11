@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @qtqtqtqtqtqtqtqtqtqt
 - 👀 I’m interested in suck my dick
-- 🌱 I’m currently learning suck my dick 
+- 🌱 I’m currently learning pls suck my dick 
 - 💞️ I’m looking to collaborate on lol no
 - 📫 How to reach me suck my dick
 - 😄 Pronouns: suck/my/dick
